@@ -1,6 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=keevaaa)
 <p align="center">୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 <p align="center">prolly afk, idm c+h
+  
+<p align="center">i block freely and i can tell when youre faking a system. doing so has become very common in ponytown...
+  
 <p align="center"><img src=https://i.postimg.cc/bvWmJ0JS/glitterfy616050588088.gif= "1">
 <p align="center">୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 <p align="center"><img src=https://i.postimg.cc/gkjLMCs7/tumblr-7cfc40c9a4c247a4e9512c68625f1b54-adea8f64-100.png= "1">
