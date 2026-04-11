@@ -2,7 +2,6 @@
 <p align="center">୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 <p align="center">prolly afk, idm c+h
   
-<p align="center">my birthday is the 27/04/06.
 
 <p align="center">any p3 skins int!! i admire them all
 <p align="center"><img src=https://i.postimg.cc/bvWmJ0JS/glitterfy616050588088.gif= "1">
